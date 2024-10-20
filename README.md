@@ -1,4 +1,4 @@
-hi , i made this for more information since i can't really go into detail about myself in my rentry . c+h is fine ( even strangers ) 
+hi , i made this for more information since i can't really go into much detail about myself in my rentry . c+h is fine ( even strangers ) 
 
 this MAY get remade in the future , but this is only for information . 
 my interests are ( forms of media )  block tales , phighting , law of talos , tmc and other things ! i'm in a lot of fandoms , don't be afraid to ask me about it !
@@ -8,3 +8,7 @@ i tend to be on tab most of the time since i have two monitors , do not be afrai
 i am usually on pt with friends , sometimes i am not . 
 
 i rarely hide people , and if i do they're temporary . if you got hidden its probably nothing and the least i set it to is 15 minutes .
+
+i am somewhat shy when being first talked to , i will open up if i feel safe . this isn't all the time , sometimes i immediately open up if i'm with friends or if i see that you're not going to judge me for it . 
+
+i have mood swings , so i may go from mellow to enthusiastic about things .
