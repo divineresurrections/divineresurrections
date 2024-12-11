@@ -12,3 +12,9 @@ i rarely hide people , and if i do they're temporary . if you got hidden its pro
 i am somewhat shy when being first talked to , i will open up if i feel safe . this isn't all the time , sometimes i immediately open up if i'm with friends or if i see that you're not going to judge me for it . 
 
 i have mood swings , so i may go from mellow to enthusiastic about things .
+
+i may forget who you are, and you might need to remind me because i have poor memory . 
+
+literally , i don't gaf if you take inspo off of my skins or anything .
+
+sometimes i do take long breaks from this game , but i always do come back to it every once in a while .
