@@ -8,6 +8,7 @@ i tend to be on tab most of the time since i have two monitors , do not be afrai
 i am usually on pt with friends , sometimes i am not but when im not , feel free to come up to me to chat , but do whisp when wanting to since i may not be on tab ^_\
 
 i rarely hide people , and if i do they're temporary . if you got hidden its probably nothing and the most i set it to is 15 minutes .
+i do block proshippers , dark shippers , and anyone under that umbrella. 
 
 i am somewhat shy when being first talked to , i will open up if i feel safe . this isn't all the time , sometimes i immediately open up if i'm with friends or if i see that you're not going to judge me for it !
 
