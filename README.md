@@ -5,7 +5,7 @@ my interests are ( forms of media )  block tales , phighting , law of talos , tm
 
 i tend to be on tab most of the time since i have two monitors , do not be afraid to int . if i am off tab , i do state in my name . 
 
-i am usually on pt with friends , sometimes i am not but when im not , feel free to come up to me to chat , but do whisp when wanting to since i may not be on tab ^_\
+i am usually on pt with friends , sometimes i am not but when im not , feel free to come up to me to chat , but do whisp when wanting to since i may not be on tab ^_^
 
 i rarely hide people , and if i do they're temporary . if you got hidden its probably nothing and the most i set it to is 15 minutes .
 i do block proshippers , dark shippers , and anyone under that umbrella. 
