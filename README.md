@@ -19,3 +19,6 @@ i may forget who you are, and you might need to remind me because i have poor me
 literally , i don't gaf if you take inspo off of my skins or anything !!!
 
 sometimes i do take long breaks from this game , but i always do come back to it every once in a while .
+
+i am taken , by my lovely boyfriend ! do not make flirtatious jokes with me or any jokes like that, i do get uncomfortable pretty quickly and awkward >_<
+^ may hide , unfriend or block if progresses out of nowhere. SORRYY!!!
